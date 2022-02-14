@@ -1,3 +1,3 @@
 ## Konstruct
 
-[Watch](https://zhibul-alexander.github.io/Konstr/)
+[Watch](https://zhibul-alexander.github.io/Konstruct/)
